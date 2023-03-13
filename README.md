@@ -1,4 +1,4 @@
-# 1523IS-InvestigaciOn_Unidad_2
+# 1523IS-Investigación_Unidad_2
 
 NOMBRE DE LOS INTEGRANTES DE EQUIPO:
 
